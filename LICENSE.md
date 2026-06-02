@@ -1,4 +1,4 @@
-# 
+# Ultimato Revo Uninstaller extensões para Mac OS | Melhor Revo Uninstaller extensões para PC Windows. Com informacoes do sistema e visualizacao rapida — otimizado para máximo desempenho em cada plataforma.
 
 
 
